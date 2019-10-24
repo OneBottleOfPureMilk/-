@@ -1,3 +1,3 @@
 # -
-一名爱纠结的小辣鸡的仓库\ n
-不知道写些什么好，只是单纯的想写上一行......
+一名爱纠结的小辣鸡的仓库
+:Hello,I'm Pure Milk.Nice to see you people!
