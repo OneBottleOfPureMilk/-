@@ -1,3 +1,4 @@
 # -
-一名爱纠结的小辣鸡的仓库
-:Hello,I'm Pure Milk.Nice to see you people!
+一名爱纠结的小辣鸡的仓库:
+Hello, this is Pure Milk.
+Nice to see you gays!
